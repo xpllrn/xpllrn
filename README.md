@@ -1,1 +1,1 @@
-I code sometimes
+contact@adore.rest
